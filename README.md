@@ -1,2 +1,0 @@
-# Kaiburr_Assignment
-NA
